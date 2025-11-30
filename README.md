@@ -1,1 +1,0 @@
-# temply-privacy-policy
